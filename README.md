@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bruno-salapic
-- 👀 I’m interested in everything
+- 👀 I’m interested in Everything
 - 🌱 I’m currently learning Everything
 - 💞️ I’m looking to collaborate on Everything
 
